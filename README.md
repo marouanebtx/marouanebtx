@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @marouanebtx<br>👀 I’m interested in Cloud Computing, Networking, and Web Development<br>💞️ I’m looking to collaborate on cloud-based projects and web applications<br>📫 How to reach me: marouanebtx@gmail.com<br>⚡ Fun fact: I enjoy designing T-shirts and sometimes go swimming to relax
+👋 Hi, I’m @marouanebtx<br>👀 I’m interested in Cloud Computing, Networking, and Web Development<br>💞️ I’m looking to collaborate on cloud-based projects and web applications<br>📫 How to reach me: marouanebtx@outlook.com<br>⚡ Fun fact: I enjoy designing T-shirts and sometimes go swimming to relax
 
 
 ## 🌐 Socials:
